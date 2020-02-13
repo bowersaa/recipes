@@ -114,19 +114,23 @@ the ez mode version is like - buy rotisserie chicken, deskin, shred the meat, ma
 
 ### Instant pot!  
 - 2 tbsp of butter 
+
 - 12 green cardamom seeds opened up so the seeds spill out onto the pan
 - 7 cloves  
 - 1 stick of cinnamon  
 - 1 bay leaf  
 - 2 tsp whole black peppercorns  
+
 - 4 - 7 cloves of garlic, minced 
 - 1 inch of ginger, minced 
 - 1 - 3 jalapenos, seeds removed, diced (optional)  
+
 - Tomato puree - 1 can of puree or crushed
 - 1 tsp red (kashmiri if you can get it) chili powder  
 - 1 tsp paprika powder
 - 1 tsp ground cumin  
 - 1 tsp ground turmeric  
+
 - Marinated chicken from above, drained
 - 2 - 3 tbsp of dried roasted fenugreek, powdered
 - 1 tsp garam masala powder
