@@ -116,32 +116,32 @@ the ez mode version is like - buy rotisserie chicken, deskin, shred the meat, ma
 - 2 tbsp of butter 
   
 - Spice Group 1
--- 12 green cardamom seeds opened up so the seeds spill out onto the pan
--- 7 cloves  
--- 1 stick of cinnamon  
--- 1 bay leaf  
--- 2 tsp whole black peppercorns  
+  - 12 green cardamom seeds opened up so the seeds spill out onto the pan
+  - 7 cloves  
+  - 1 stick of cinnamon  
+  - 1 bay leaf  
+  - 2 tsp whole black peppercorns  
   
 - Spice Group 2
--- 4 - 7 cloves of garlic, minced 
--- 1 inch of ginger, minced 
--- 1 - 3 jalapenos, seeds removed, diced (optional)  
+  - 4 - 7 cloves of garlic, minced 
+  - 1 inch of ginger, minced 
+  - 1 - 3 jalapenos, seeds removed, diced (optional)  
   
 - Spice Group 3
--- Tomato puree - 1 can of puree or crushed
--- 1 tsp red (kashmiri if you can get it) chili powder  
--- 1 tsp paprika powder
--- 1 tsp ground cumin  
--- 1 tsp ground turmeric  
+  - Tomato puree - 1 can of puree or crushed
+  - 1 tsp red (kashmiri if you can get it) chili powder  
+  - 1 tsp paprika powder
+  - 1 tsp ground cumin  
+  - 1 tsp ground turmeric  
 
-- Marinated chicken from above, drained
+- Marinated chicken from above, drained 
   
 - Spice Group 4  
--- 2 - 3 tbsp of dried roasted fenugreek, powdered
--- 1 tsp garam masala powder
--- 4 oz unsalted butter, cut into cubes
--- 6 oz of heavy whipping cream.
--- salt, to taste
+  - 2 - 3 tbsp of dried roasted fenugreek, powdered
+  - 1 tsp garam masala powder
+  - 4 oz unsalted butter, cut into cubes
+  - 6 oz of heavy whipping cream.
+  - salt, to taste
 
 1. Turn the Instant Pot to saute, high, and melt butter.
 2. Add the cardamom seeds, cloves, cinnamon, bay leaf, and peppercorns. Cook for 1-2 minutes, stirring so the spices don't burn. 
